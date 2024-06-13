@@ -7,7 +7,10 @@
 
 
 
-https://github.com/JiYun1101/IphoneInfoPage/assets/91119322/715e6e73-5fd2-4695-aeaa-37a2c2a0e871
+https://github.com/JiYun1101/IphoneInfoPage/assets/91119322/40e2826c-6db7-4478-973f-a5e078380864
+
+
+
 
 
 
