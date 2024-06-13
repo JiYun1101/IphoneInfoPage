@@ -7,8 +7,8 @@
 
 
 
+https://github.com/JiYun1101/IphoneInfoPage/assets/91119322/715e6e73-5fd2-4695-aeaa-37a2c2a0e871
 
-https://github.com/JiYun1101/IphoneInfoPage/assets/91119322/b7568bc8-de16-4d94-b5fc-f632ac7d6a9c
 
 
 
