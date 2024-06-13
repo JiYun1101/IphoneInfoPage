@@ -8,6 +8,10 @@
 
 
 
+https://github.com/JiYun1101/IphoneInfoPage/assets/91119322/b7568bc8-de16-4d94-b5fc-f632ac7d6a9c
+
+
+
 # Task
 
 1. 리액트
